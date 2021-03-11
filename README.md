@@ -2,4 +2,4 @@
 
 💥 Currently going mental with Full Stack\
 📚 Praise a great book recommendation!\
-🎧 Song of the month: **Pink Floyd - The Dogs of War**
+🎧 Song of the month: **Guns N' Roses - Better**
