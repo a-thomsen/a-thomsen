@@ -2,4 +2,6 @@
 
 💥 Currently going mental with algorithms and kinetic typography\
 📚 Praise a great book recommendation!\
-🎧 Song of the month: **Pixies – Hey**
+🎧 Song of the month: **Pixies – Hey**\
+
+🎢 Get your freak on and say hello – you can reach me at **postmickalypse@gmail.com**
